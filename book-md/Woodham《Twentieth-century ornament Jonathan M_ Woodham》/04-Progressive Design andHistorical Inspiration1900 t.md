@@ -1,0 +1,32 @@
+# Progressive Design and Historical Inspiration 1900 to 1914
+
+Nineteenth-century Roots and the Arts and Crafts Legacy
+
+The nineteenth century is generally associated with widespread industrialization and the development of new technologies for the mass-production of a wide variety of goods. New processes and techniques made the largescale manufacture andapplication of ornament and decorative motifs a reality, while the development of transport and communication networks increasingly allowed the transmission and absorption of a wide variety of styles and cultures. The growth of museums and the mounting of major international exhibitions in Europe and the United States, commencing with the 1851 Crystal Palace exhibition in Hyde Park, London, furthered this process. Attracting millions of visitors to experience the national pavilions and products of countless nations, the exhibition introduced manufacturers to a seemingly endless supply of sources with which to
+
+embellish their products. As a result, the Victorian householder was able to draw on an encyclopaedic range of ornamental motifs to decorate the home. Unfortunately, such goods were often of less than the highest quality and attracted the contempt of many design reformers in Europe and the United States, in terms of both the low value placed on the creativity of the individual designer and the social consequences brought by industrialization to the majority of those who worked under its shadow.
+
+Hoping to remedy this situation, William Morris and his Arts and Crafts followers pursued a critique of this design and lifestyle in the second half of the nineteenth century, but their writings, ideology and aesthetic doctrines were only given material form in the houses and furnishings of an “enlightened" upper-middle-class clientèle. Such a restricted market clearly affected the realization of the more socially-orientated Arts and Crafts aspirations for the provision of a better living and working environment for society as a wholè. None the less, the movement provided a significant catalyst for progressive developments in design in the early years of the twentieth century, especially in continental Europe.
+
+A fervent dislike of the reliance on historicism by members of the academic establishment in the fields of fine arts, architecture and design had already found fresh and vigorous expression in the work of a new generation of designers in the closing years of the old century. This was, perhaps, epitomized in the organic arabesques of the Art Nouveau style. This had taken root in variable conditions: the cold, wet soil of Charles Rennie Mackin-
+
+![](images/3151f10253bc2477470dc54163556db62a5928dcfe09390392abd14daa121ff3.jpg)
+
+![](images/65fb01d860eda2378b7940ff69c4e2c746d96359ef132777534beab7be04afcf.jpg)
+
+![](images/22cf15a6ed9a0869e395d115fb5f083af98d4d4c318583616da603a97586e2fa.jpg)  
+tosh's Glasgow, the more temperate environment of Antonio Gaudí's Barcelona and the Turin of Raimondo d’Aronco, the windy lake-shores of Louis Sullivan's Chicago, the flatlands of Holland or the more fertile regions of Austria, Belgium, France and Germany.¹
+
+ABovE Printed silk design by Charles Rennie Mackintosh, c. 1900. The strong flowing lines and forms of this watercolour design show Mackintosh's affinity for the organic forms of Art Nouveau at this time, albeit manifest in aspects of the Celtic Revival in Scotland. The pronounced graphic linearity in many of the details can be found in much of Mackintosh's contemporary work in other fields, including stencilwork, furniture decoration and glass.
+
+# Austria and the Wiener Werkstätte
+
+An important design group of the new century was the Wiener Werkstätte (the Vienna Workshops), founded in 1903 by the designers Josef Hoffmann and Koloman Moser, together with their financial backer Fritz Wärndorfer. Like a number of other contemporary ventures in Germany and elsewhere, its roots were in the Secessionist, anti-establishment spirit of the late 1890s and its leading practitioners looked northwards to certain aspects of British Arts and Crafts practice and outlook for an indication of ways to develop. Indeed, as with a number of other European groups, the Wiener Werkstätte provided an important link between forwardlooking ideas of the late nineteenth century and more radical strands of twentieth-century development.
+
+Across Europe the Secessionists had placed significant stress on the advancement of the applied arts, and Wiener Werkstätte activities similarly embraced a wide variety of design fields, including fashion, textiles, furniture, wallpaper, graphics, ceramics, jewellery and architecture. Their attitude accorded with the prevalent nineteenth-century notion of the Gesamtkunstwerk (“the total work of art"), whereby all aspects of design were integrated into a unified whole, a philosophical and aesthetic premise that firmly underpinned the group's activities. This ideal was-perhaps most fully realized in the architecture, interiors and furnishings of the highly influential Palais Stoclet in Brussels, designed by Josef Hoffmann and executed by the Wiener Werkstätte.
+
+Initially the group's products, particularly those of Moser and Hoffmann, revealed a sense of structure and geometry suggesting links with the work of Mackintosh and the Glasgow School, which was well known in Austria.² After the departure of Moser from the group in 1907, an altogether more floridanddecorative style developed, under the impetus of artists such as Carl Otto Czeschka and Berthold Löffler; the tendency gained further licence with the appointment of Dagobert Peche as manager of the Artists' Workshops in 1915. Furthermore, despite its increasing emphasis on retailing outlets in the years leading up to the First WorldWar, the Wiener Werkstätte was concernedultimately with aesthetic rather than social and egalitarian inclinations, since the majority of its products catered for the wealthy upper echelons of fashionable Austrian society. Although important links were forged with the manufac-
+
+![](images/524875971a710b7fa6c61d33d8a98113a76931faa56c0eb6b7f4fee0df06f0b3.jpg)
+
+![](images/da008f30383fc9115ea1146e941b97de8d2416c9bb346d6e49f8b37b721829b0.jpg)

@@ -1,0 +1,5 @@
+## Social Archaeology
+
+General editor: Dr lan Hodder, University of Cambridge. Advisory editors: Dr Margaret Conkey, State University of New York at Binghamton; Dr Mark Leone, University of Maryland; Alain Schnapp, U.E.R. d'Art et d'Archaeologie, Paris; Dr Stephen Shennan, University of Southampton; Dr Bruce Trigger, McGill University, Montreal.
+
+In recent years, social theory has played an increasingly important role in archaeology. In particular, archaeologists have shown a growing interest in meaning, structure, text, power and ideology. Social Archaeology is a series designed to explore these wider interests and the developing links between archaeology, anthropology, sociology and history. From a basis of detailed archaeological and ethnographic research, the authors will re-examine the relationships between past and present and between material culture and society, looking at, for example, the clothes we wear, the houses we build and the rubbish we deposit. The series will also apply perspectives and methods in archaeology that incorporate or have been influenced by developments in social theory and ethnography.

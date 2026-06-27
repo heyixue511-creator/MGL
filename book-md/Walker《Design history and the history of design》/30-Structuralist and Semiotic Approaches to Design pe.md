@@ -1,0 +1,43 @@
+particular social relations which it helps to reproduce or to alter. One theorist – Michael Thompson - has objected to the symmetry of statements like ‘society shapes design and design shapes society’ on the grounds that they assume ‘not just some recognizable persistence but eternal repetition'. He adds: ‘But our buildings were not always as they are now, nor were we always as we are now, and in using such a formula we impose a static understanding upon a changing reality.'39 So whatever model is adopted it ought to be a dynamic one capable of accounting for both cyclical change and more radical, fundamental change.
+
+As we have seen, some writers distinguish social factors from economic, political and ideological ones. Any social history of design which excludes the last three would surely be inadequate. Ideally, all relevant factors impinging upon the design process should be considered and evaluated.
+
+## Structuralist and Semiotic Approaches to Design
+
+Structuralism and semiotics are frequently discussed together. They have much in common – linguistics, for example - without being identical. (Structuralism is concerned with structures, semiotics with signs.)
+
+## Structuralism
+
+Modern structuralism is closely associated with the discipline of anthropology, in particular the work of Claude Lévi-Strauss, who in turn is heavily indebted to the Prague School of Structural Linguistics and the work of Saussure. Structural anthropologists demonstrate their debt to linguistics by treating human culture, myth and behaviour as if they were ‘articulated like a language' and by employing terms derived from linguistics such as langue and parole. During the 1960s, structuralism was one of the most fashionable and influential schools of thought emanating from Paris. Its impact on British scholars was most marked, therefore, in the 1970s.
+
+As its name indicates, structuralism is interested above all in structures, especially unconscious ones. People obey the social rules of kinship without being taught them in any systematic way; similarly, people speak languages based on systems of grammatical rules without consciously understanding them. It is these deep, hidden structures which the analyst seeks to identify. A structure is a whole or totality consisting of various parts or elements which are systematically related to one another and to the whole. In other words, a structure is not a mere aggregate or composite. Furthermore, structures are dynamic: they are capable of change or, rather, transformation. Structures are governed by sets of intrinsic laws which enable transformations to take place, hence they are capable of structuring.
+
+In linguistics it is assumed that language has a surface structure and a deep structure and that the first differs in appearance from the second. It is also assumed that what governs the translation of deep structures into surface structures are certain rules of transformation. Similar rules are considered by structuralists to govern the ability of myths to change their configurations: while the elements making up the variant forms of a myth may differ, their underlying pattern of relations remains the same; this is because they all share the same deep structure. A key aspect of structuralist thinking is that the relations between things are more important than the things in themselves.
+
+It should be acknowledged that there are several varieties of structuralism and several definitions of ‘structure'. Lévi-Strauss believes that structures are not directly observable, empirical phenomena but models devised by the analyst as a means of understanding reality. However, he maintains that the best models are ‘true', hence a correspondence between model and reality is presumed. A favourite method of analysis in structuralism is the reduction of the complexity of social life to a series of binary oppositions such as nature/culture, raw/cooked. It is sometimes argued that such oppositions are the invariant universal forms of the human mind.
+
+Apart from anthropology and philosophy, structuralism has been most influential in literary criticism. Some structural analyses, however, have also been undertaken in respect of painting, architecture and advertising. Structuralism's relevance to design can, perhaps, be glimpsed in Pierre Bourdieu's analysis of the spatial orientation and interior layout of a Berber peasant dwelling in Algeria (first published in 1971).4º Bourdieu begins by criticizing existing accounts on the grounds that mere descriptions and inventories of the contents of Berber houses fail to reveal their underlying meanings and significances. Only a structural analysis which considers the household in terms of the larger society with its religion, rituals, proverbs and conventions governing the respective roles of men and women, he claims, can fully explain the positioning of the house and the arrangement of its parts and contents. Bourdieu's analysis revolves around a series of binary oppositons: male/female, dry/wet, fire/ water, day/night, outside/inside, etc., and he assumes that these are analogous or homologous to one another.
+
+Although this kind of analysis is illuminating, the design historian can legitimately object that it is non-historical. Berber society is assumed to be eternal, untouched by the political, economic and social changes affecting Algeria. (The only changes which take place within it are the cyclical ones of religion and nature.) This is, in fact, the principal objection of design history to structuralism. Nevertheless, so long as the historian realizes that what a structural analysis supplies is a synchronic account, then the method can be of value in understanding patterns of human culture - such patterns can, of course, persist for very long periods of time.
+
+In one of his essays, Lévi-Strauss discussed the problem of the relationship between structuralism and history.41 His conclusion was that they are complementary, not opposed, activities. Whereas structuralists are concerned with the ability of systems to transform themselves while still retaining the same structure, historians are concerned with how such systems originate, reproduce themselves, change and decay.
+
+Another application of structuralism to a design topic is Varda Leymore's book about magazine and television advertising, Hidden Myth (1975). The book's basic methodological assumption is that the appropriate unit of study is the product field, that is all the advertisements relating to a single product or service rather than those for one brand or those created by one agency. It is argued that since the products in a product field are in competition with one another for the same market, their associated adverts constitute a distinct system. To understand any particular advert one needs to consider how it relates to and differs from all other rival adverts trying to sell the same or similar products. It follows that butter advertising cannot be understood independently from margarine advertising. In this instance Leymore's analysis results in a series of homologies: the relationship between butter and margarine is considered equivalent to the contrasts:
+
+dear: cheap
+
+concord : protest
+
+content: discontent
+
+care : negligence
+
+love : hate
+
+and when these are reduced to a single contrast called ‘the exhaustive common denominator' the result is
+
+## peace: war
+
+Leymore's general conclusion is that advertising plays the same role in modern society as myth does in tribal society, that is, a conservative role. Its overall social function is to resolve, symbolically, the fundamental issues and contradictions of human existence: life and death, happiness and misery, war and peace, and so on. This process, she claims, is unconscious: neither consumers nor advertisers are aware of it.
+
+Again the design historian can protest that while a structural analysis may reveal how advertising works as a symbolic system, it neglects the unique characteristics of individual examples, it ignores advertising's historical development and has nothing to say about the actual material conditions of its production. Another valid criticism, made by David Francis in his article 'Advertising and structuralism: the myth of formality'(1986), is that the elucidation of formal structures of meaning takes place in an empirical vacuum.42 Structuralists, in other words, simply assume that their analyses are the correct ones without

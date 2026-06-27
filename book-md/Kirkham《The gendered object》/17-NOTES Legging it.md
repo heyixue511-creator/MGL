@@ -1,0 +1,97 @@
+## NOTES
+
+1 Sue Moore, 'Trainer mania', Designing, 26 (Spring 1991), pp. 16–17.
+
+2 Clarita Anderson and Ann Buermann Wass, 'What did women wear to run?', Dress: Journal of the Costume Society of America, 17 (1990), pp. 169–84.
+
+3 M. Cheskin, K. Sherkin and B. Bates, The Complete Handbook of Athletic Footwear (New York: Fairchild Publications, 1987), p. 59.
+
+4 Grattan (Spring/Summer 1978), pp. 677–8.
+
+5 Cheskin et al., Athletic Footwear, p. 22o.
+
+6 Ibid.
+
+7 Grattan (Spring/Summer 1979), p. 360.
+
+8 Grattan (Spring/Summer 1992).
+
+9 Empire (Spring/Summer 1990), p. 571.
+
+10 Ibid., p. 561.
+
+11 Reebok Footwear Collection (Autumn/Winter 1994), p. 34.
+
+12 Reebok Professional Instructor Alliance News, vol. 11, no. 1 (Winter 1993).
+
+13 Peter Luscombe, British Sports Goods Industry (Jordon & Sons Surveys Limited, 1986), p. 34.
+
+14 Ibid., p. 2.
+
+15 Peter Luscombe, British Sporting Goods into the 199os (Jordon & Sons Surveys Limited 1991), p. 10.
+
+16 Serena Marler, 'On the right track’, Drapers Record (August 15 1992), p. 36.
+
+17 There has been extensive research on the sociology of sport with some discussion of the debates surrounding women's participation. See in particular, Jennifer Hargreaves (ed.), Sport, Culture and Ideology (London: Routledge, 1985); Jennifer Hargreaves, Sporting Females: Critical Issues in the History and Sociology of Women's Sport (London: Routledge, 1994); John Hargreaves, Sport, Power and Culture: A Social and Historical Analysis of Popular Sports in Britain (Cambridge: Polity Press, 1986); and Mary Boutilier and Lucinda San Giovanni, The Sporting Woman (Champaign, Illinois: Human Kinetics Publisher, 1983).
+
+18 Nike placed on advertisement in Runner's World in 1976 highlighting the continued marginalisation of sportswomen. It depicts a cartoon of a number of women athletes running after members of the International Olympic Committee who would not allow women to run in races longer than 1,50o metres. (This advertisement is reproduced in Cheskin e† al., Athletic Footwear.)
+
+19 Sharon Walker, 'Body perfect', Health & Fitness (April 1994), pp. 46–53. (This is one of several articles published recently which discuss the various body ideals available apparently with the right kind of exercise programme.)
+
+20 Sarah Gilroy, 'The emBody-ment of power: gender and physical activity', Leisure Studies, 8 (1989), pp. 163–71.
+
+21 Luscombe, British Sports Goods Industry, p. 30.
+
+22 William Leith, 'Pump it up', The Independent on Sunday (July 8 199o), pp. 3-5.
+
+23 I would like to thank Peter Lawson of Avia for this information.
+
+24 I am indebted to Nicola Thompson (Instructor Alliance Programme Manager at Reebok) for information on Reebok.
+
+25 Thanks to Nicola Thompson of Reebok.
+
+26 Reebok Professional Instructor Alliance News, vol. 11, no. 1 (Winter 1993), p. 2.
+
+27 Ibid., p. 7.
+
+# Legging it
+
+D nomenon well-documented in social and dress histories. But the reversal of the gender of tightly clothed legs is an intriguing issue which seems to have escaped notice, despite the fact that it is a purely twentieth-century assumption that a sheathed leg is - or intends to be regarded as - a female leg.
+
+For most of the six centuries prior to our own, an arrangement of attire that clearly revealed the shape of the legs was the predominant means of expressing masculine power or authority. Phrases still in use today juxtapose references to the leg and power, in the sense of getting ahead. 'To get a leg up' derives from the practice of mounting a horse in the field by standing on another's hand and indicates the 'other' as an inferior. The more contemporary 'legging it', which implies criminal behaviour, embodies a subversive element that is also germane to an exploration of the gendered leg.
+
+In sifting through the historical development of and interplay between the tightly clothed leg and the trousered (i.e. loosely clothed) leg, it is worth remembering the association of barbarianism with trousers, which dates from the late Roman Empire. When the official dress was the unstructured toga, the trousers worn by the barbarians - central European tribes whose incursions of the third and fourth centuries began to disrupt the Empire - represented the subversion of established rule and, in the last decade of the fourth century, two attempts were made to ban the wearing of trousers by Roman subjects.
+
+The links between thuggery and trousers were further strengthened over the next two centuries; in Secret History, set in the court of Byzantine emperor Justinian I (fl. 527–65), Procopius described the dress of the upperclass supporters of the rival hippodrome teams in Rome - virtually thugs who robbed people for kicks – as a medley of the old and the new; they wore the toga praetexta (the purple-bordered Roman magistrate's toga) to which they had no right, tight-sleeved tunics and 'cloaks, trousers and boots . . . [which] were called the Hun style'.1 Justinian gave to posterity his codification of Roman law, and defeated the Vandals in Africa and the Ostrogoths in Italy, thus contributing to the survival of the ideal of civilisation as embodied in the Roman Empire. Goths, Vandals, barbarians and Huns were committed to history as 'bad guys', and they all wore trousers.
+
+The Goths were also held responsible for the destruction of classical art by Renaissance artists, for whom 'Gothic' was a derisory term for the art and architecture of their immediate predecessors. It could be coincidence but, as the Renaissance dawned in fourteenth-century Italy, fashionable male attire began a new phase that gradually incorporated the exposed and tightly clothed leg. The resulting effect has been referred to as creating a clothed nude, borne out most clearly by depictions of men in the decades either side of 15oo (when the torso was also closely covered), but apparent first in the treatment of legs some 150 years earlier. Interest in a humane, civilised and classicised world was paralleled by the creation of a masculine wardrobe that placed emphasis not just on the leg, but on the shape of the leg.
+
+The garments that made this development possible were the breeches and hose. After 115o, illustrations of such garments become plentiful enough to suggest that the function of the hose was to hold the bottom of the breeches in place. (Alternative arrangements were cross-straps wound round the leg like puttees, or breeches shaped like jodhpurs.) For another two centuries breeches grew shorter and hose longer, but two things remained fairly constant: the hose were made of cloth, cut on the cross and pulled up over the bottom of the breeches, and the overgarment, whether shoulder-to-toe or to the knee, was loose and relatively untailored. Eventually hose came high enough to be attached to the garment covering the torso and, at about the same time, c. 134o, a short tight tunic was adopted. From then until about 162o the male silhouette was varied by the shape of the body covering or, from about 152o, a variety of garments connected to the hose (later separate, once knitted hose became available) and reaching from waist to thigh, only occasionally descending to the knee. Sometimes they became pumpkin-like in shape, and on the young gallant of the late 15oos, stopped short at the hip. For much of the period, a gown, either long or short, was an optional overgarment, with young men favouring the short gown.
+
+Today we see dignity and majesty in the long version of the 'gounes' or 'houppelandes' that were fashionable about 136o to 146o (now adopted as a static element of official dress). Yet at the time the fullness of these pleated gowns and the abandoning of the front and back slits, which allowed the simpler, knee-length over-tunics to be worn on horseback, were both decried as effeminate, particularly when viewed from the back. If gowns spelled the 'feminine', hose signalled the masculine; a 136os depiction of St Theodora disguised as a man confirms that legs closely clothed and revealed up to the thigh were the requisite elements for her transformation. Most of the complaints about such revealing male attire, including those voiced by Chaucer in his Parson's Tale, focused on the often indecent emphasis on gender; a codpiece was added in the mid-14oos and continued to be worn into the last quarter of the 15oos, serving both modesty and vanity and, perhaps more significantly, offering some degree of protection.
+
+An (assumed) relationship between the emergence of Renaissance ideals and the revelation of a shapely male leg might be explained in terms of: a renewed interest in classical sculpture and thus 'real' body shape; the shift from faith to reason involving a change in emphasis from soul to body; or the emergence of mercantile networks that, put simplistically, created a noticeably more male-dominated world that was echoed in the dichotomy between increasingly revealing (male) and increasingly concealing (female) dress. However, art, intellectual discourse and commerce nothwithstanding, the same period also represents the lifespan of plate armour. So it is also possible that the male fashions (hose, short and shaped tunic and optional gown) noticed as different from about 134o, represented garments designed to be worn under armour, particularly since, at more or less the same point, mail leggings were abandoned in favour of hinged plate, covering toe to thigh and benefiting from a smooth, continuous padding beneath.
+
+Contemporary accounts and illustrative material - as well as common sense - indicate that action required unencumbering clothes. Discussing mid-fourteenth-century male dress, Stella Mary Newton commented that the 'combination of long hose, a short, padded sleeved garment reaching the waist, at which point the hose were tied to it, and a long thick loose overcoat was, in contrast to the tunic and over-tunic which constituted the formal dress of the upper classes, the sports wear of the day, shared with country people and wealthy peasants'.² Therefore, the 'clothed nude' look also provides a link to sport. The 'clothed nude' look parodied the nude athletes of ancient Greece; thus the exposure of the shape of the male body - suggesting not only classical ideals but also youth, ambition or physical prowess - can be read as a skilful amalgam of understood symbols which relate to power of one kind or another.
+
+In the eighteenth century, when male fashions again included hose (or stockings) to the knee and increasingly close-fitting breeches above, the power signified by such a silhouette was more often social than athletic. Elegance, in motion or repose, was a fundamental requisite of polite society, a necessity that spawned dancing masters and a proliferation of books 'chiefly for the Use and Benefit of Persons of Mean Births and Education, who have unaccountably plung'd themselves into Wealth and Power'.3 Whether walking, bowing, dancing or fencing, the correct position of the legs was codified. In 1752, when Lord Chesterton advised his son that he should always put his best foot foremost, his meaning was literal, and the male costume of the period was constructed to ensure that the line of the leg was clearly visible.
+
+Trousers - that is the whole variety of loosely shaped garments that characterised the lower classes or were associated with occupations (e.g. the 'slops'worn by sailors) – had coexisted with fashionable men's wear since the Renaissance. Only briefly in the seventeenth century was there a fashion for very loose knee-length 'petticoat breeches'. In Tyranus, or The Mode (1664), John Evelyn likened the extreme gathering of this 'exorbitant' mode to his 'Grandames loose Gown' and, in a reprise of earlier criticism of men in voluminous garments, condemned them as 'Hermaphrodite and of neither Sex'.4
+
+Trousers became recharged with 'barbarianism' at the end of the eighteenth century, when for practical reasons members of the social élite abandoned breeches and hose and went sans culotte. But fashionable men - or their tailors - adapted the loose trousers of the populace into ankle-length pantaloons. Skin-tight (with an instep strap to keep them so) and often worn with boots, the visual break just below the knee, which had characterised the previous fashion, was preserved. The dread of loose trousers was only overcome very slowly and, although by the 18zos there was a decline in the extreme tightness of pantaloons (often made from stockinette or cut on the cross to better mould the body), military fashions, such as those associated with the Hussars, continued their use well into the middle of the century. Then, with fashionable tailoring (as opposed to the body itself) producing a shaped leg, men were still being advised to avoid loose trousers which, especially when made of a checked fabric, gave the impression of an ungentlemanly entrepreneurial spirit (or, put another way, marked out the wearer as today's equivalent of a second-hand car salesman). In light of the persistent resistance to loose trousers - except when dressed for tennis, cricket or similar sports (for shooting or bicycling knee breeches were still worn) - the baggy trousers worn by William Morris (designer, poet and socialist, 1834-96)
+
+take on a much more radical meaning, particularly since he wore them with a smock. Looseness meant untrustworthiness, although more so in 1859 when men were advised against trousers ‘as loose as a Turk's', than in 1932, when a conservative British tailor pronounced that 'soft, sloppy clothes are symbolical of a soft and sloppy race'.⁵
+
+It should by now be obvious that when, during the 191os and 192os, women adopted loose 'trousers' for informal occasions, they wore a garment that had little élite masculine symbolism. The pyjama-like construction and long over-garment came from traditional garb with connotations of 'otherness', with that meaning encompassing the uncivilised, the lower classes and the untrustworthy. Far more radical was the breathtaking audacity of shortening skirts, not just because they revealed the leg (as did bathing costumes), but because they revealed a sheathed leg. Although described as 'nude' in colour, the stockings of the period were sufficiently coloured and shiny to ensure that the leg did not look bare and therefore, given the power of cultural memory, carried connotations of manliness as strong as the short hair that went with such fashions.
+
+The label 'garçonne' gave emphasis to the boyishness of elements of 192os style, and confirmation that the sheathed leg still suggested masculinity could be found in the reaction to its opposite - the ultra-wide Oxford bags adopted by young men in 1925 which were lampooned as effeminate. This 'vice-versa' of male and female silhouettes helped young women - visually and in reality - to take on the cultural role of a slaughtered generation of young men. A fitting role model for the new foot-soldiers of change was provided by Joan of Arc, who was canonised in 192o. In 1928, when the French Société Générale de Film commissioned an art film to be based on a strong woman of the past, director Carl Dreyer chose Joan of Arc from three options (the others being Catherine de Medici and Marie Antoinette). While professing no interest in the costumes, he chose a heroine who had adopted a male role and with it, a male appearance.6 In 1428-29, when Joan of Arc led an army to free the besieged city of Orléans, enabling Charles VII to be crowned king of France, the male fashions called for hose, tunic and a short gown to just above the knee, belted at the hip; hair was ear length. Had a fashionable woman of 50o years later been magically transported to the same battlefield, she too (choice of fibres and fabrics apart) might have been mistaken for a man.
+
+Sartorially speaking (and in many other respects) the 192os marked the beginning of a period since when women's dress evolved two series of related styles that bear a remarkable resemblance to the dress of late medieval and Renaissance men. In the first, fashionable during the 192os and 196os, the combination of 'hose' and shaped tunic, dropping to hip or lower thigh, reflected male fashions of about 1350-1450. A particularly close comparison can be made between a weeper from the tomb of Edward III (c. 1377-86) and a fashionable young woman of the late i96os, so much so that the dress of both can be described in the same way: a simple but shaped garment belted at the hip, sleeves cut high into the armpit, coloured tights and short hair [34, 35]. The second, seen in the 195os, and to a more extreme extent in the last ten years, combined shape-revealing, ankle-hugging trousers or leggings with waist-length tops that recall the 'clothed nude' male fashion of about 15oo. Both styles were reserved, as before, for the young, ambitious or powerful, and were significant symbols of women's increasing social, sexual and economic freedoms. It could be argued that women's leggings deserved the term 'power dressing' even more so than the big-shouldered suit, since the latter had a far shorter history of use by men than the former.
+
+Men did not entirely abandon their right to sheathed legs during the decades after 192o, but the 'drainpipes'of the 195os were part of a counterculture whose clothing unsettled the establishment in much the same way that loose-trousered barbarians had threatened the Romans. Although one can argue that the very tight pantaloons of the early nineteenth century were similarly symbolic of aggressive young men, there was at that time no female equivalent, and so the question of gender differentiation never arose. Yet in the late 196os and early 197os, when young men and women alike began to wear flares skin-tight to just below the knee, the cliché question - when wearers were seen from the back – became 'male or female'? The implication was – for the first time – that men could look effeminate in tight trousers. Seen from the front, of course, there was little doubt about the gender of the wearer. James Laver, the costume historian who supported the 'shifting erogenous zone'theory of fashion history, when asked if the peacock male fashions of 1968 were sinister, replied 'Maybe . . . If the patriarchal society is changing to a matriarchal one it will be women who will choose their partners – men will have to dress to attract - exaggerating their masculine qualities, like wearing tight trousers which are, in effect, codpieces."7 The female incursion into the realm of the sheathed leg was understood as a contemporary symbol of the new powers of women, but at the same time, women's adoption of such clothing had also altered their gender implications, bringing in tow some loss of visually communicated power or status. Laver's comment, for example, contained within it an inference that men in tight trousers meant men seeking rather than conferring approval or attention, deprived of absolute control of their destiny.
+
+![](images/e1fb87faf99c446ba3896ad4cb7fd8bf83f8eb80d65f32d7da9e12d22f238da4.jpg)  
+34] William of Hatfield, weeper (courtesy of the Dean and Chapter of Westminster)
+
+![](images/fcd7e6904ef36c090b17a99bed8faf5f81a636e997a9fdbc4402d56828c24656.jpg)  
+35] From Dupont Orlan ® advertisement

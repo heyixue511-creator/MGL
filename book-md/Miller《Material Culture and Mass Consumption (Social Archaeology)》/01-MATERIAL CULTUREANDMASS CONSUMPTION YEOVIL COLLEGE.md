@@ -1,0 +1,19 @@
+## MATERIAL CULTURE AND MASS CONSUMPTION
+
+![](images/75d6b41798d0bd0661cb7310647fc1d483345b3716509b445f3af256c8092ab6.jpg)
+
+Daniel Miller
+
+YEOVIDOANNN FROMYBPORARY
+
+# YEOVIL COLLEGE LEARNING CENTRE
+
+TO BE RETURNED OR RENEWED BY THE DATE LAST STAMPED BELOW Tel. 01935 845450
+
+# WITHDRAWN
+
+# FROMLIRRARY
+
+Digitized bythe Internet Archive in 2023 with funding from Kahle/Austin Foundation
+
+Material Culture and Mass Consumption

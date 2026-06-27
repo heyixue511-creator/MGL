@@ -1,0 +1,43 @@
+## Varieties of Design History
+
+Having summarized the general problems of history-writing, it is now possible to look at the various ways in which design historians have approached their task. As explained earlier, histories of design vary not only because they treat different facets of the subject but also because different scholars adopt different methods and approaches. Readers will find it helpful in understanding and evaluating such texts if they can characterize and name the approach in question. Some writers give this information in the introductions to their books, others do not. Where no explicit methodological discussion occurs, it is worth scanning the index: if Marx, Engels and Gramsci are frequently cited then the chances are the book employs a Marxist approach (alternatively, it could be anti-Marxist). If the index proves unhelpful, then the text will need to be closely scrutinized and read symptomatically.
+
+Texts can be categorized in several ways:
+
+1. According to level and audience. Every text presumes an ideal reader or group of readers. There are specialist, academic books on design and there are also popular, journalistic ones.
+
+2. According to the political perspective informing the text. For example, liberal, anarchist, feminist, socialist.
+
+3. According to the underlying philosophical assumptions, for example, idealist, materialist, realist, Hegelian.
+
+4. According to the principal academic or scientific mode of analysis employed, for example, structuralist, semiotic, functionalist, stylistic, comparative, typological, deconstructive.
+
+5. According to the kind or school of history-writing employed, for example, humanist, social, cultural, history of ideas, Braudelian.
+
+6. According to time or place, for example, histories of twentiethcentury design, the design of particular nations or larger geographical units such as Europe.
+
+7. According to the extrinsic discipline employed, for example, anthropology, sociology, economics, archaeology, psychology.
+
+8. According to a materials/techniques emphasis.
+
+Although these approaches have been listed separately, in any particular text one will generally expect to find a mix of elements. If a writer combines ideas and methods promiscuously, then one may be compelled to characterize the text as eclectic'.
+
+A few approaches will now be considered in more detail to see what they involve.
+
+## The Materials/Techniques Approach
+
+Traditionally, one of the popular ways in which museum curators and design historians arranged their objects of study was on the basis of physical materials and their associated techniques and processes. Although a wide variety of artefacts can be constructed from a natural material such as wood, scholars frequently grouped them together because of their common substance and because they were made in similar ways with the aid of particular kinds of tools and machines. Thus it was usual to collocate books and printing, silverware and silversmithing, furniture and woodwork (it should be noted that furniture can be made of fabrics and leather besides wood, and also from cane, moulded plastic and tubular steel, so the equationfurniture equals wood’ does not, in reality, always apply), and so on.
+
+If we consider the plan initially adopted by curators at the Victoria and Albert Museum to present their collections in the new building opened in 1909, the predominantly materials/ techniques basis is evident: (1) Architecture and sculpture; (2) Metalwork; (3) Woodwork, furniture and leather; (4) Textiles; (5) Ceramics, ename and glass; (6) Paintings; (7) Engraving, illustration and design. Within these sections the aim was‘a logical scheme illustrating the technical and artistic development of the particular industry represented’.1 (So, historical or typological arrangements could exist within main sections.) It should be remembered that the museum's collections were not primarily intended for the edification of the general public. Their presumed constituency was narrower: craftsmen, manufacturers, designers and students. These groups were supposed to be educated and stimulated by what they saw in order to bring about an improvement in the quality and standard of British crafts, decorative arts and manufactures. This is why a materials/techniques arrangement was favoured and why the collections were limited to examples of the highest quality.
+
+A book organized exclusively in terms of materials is The Pattern of English Building (1972), by Alec Clifton-Taylor. Its chapter headings include: stone, granite, slate, marble, flint, brick, tiles, wood, thatch, plaster, metals and glass. The author's aim is to demonstrate the close link between the geology of the country, the various materials this provides, and the distinctive pattern of traditional buildings that resulted from the use of them. Although the materials from which a building's shell are constructed contribute a great deal to the character of its external appearance, exactly what part they play in the structure's form and design is much more difficult to ascertain. After all, bricks can be used to make a thousand differently shaped structures. Other factors, it would appear, determine form and design. Clifton-Taylor certainly recognizes the existence ofother factors but, as the following quotation makes clear, he still assigns priority to materials:
+
+In the past the very uneven distribution of wealth between one district and another certainly had an important influence; but neither this nor other factors, such as the exigencies of climate, or changing social requirements, or the strength of tradition, or the swinging pendulum of fashion, affected the character of our local building activities nearly so radically as the nature of the materials which were available.²
+
+Our second example of a materials-based text deals with a substance generally regarded as quinteşsentially modern – plastic – even though, in fact, it has existed in natural forms for centuries. Sylvia Katz’s book Plastics: Designs and Materials (1978) systematically examines over 60 kinds of plastic, both natural and synthetic, and the extraordinary variety of products they have made possible. It also includes a chapter on the chemistry of plastics and an appendix on moulding processes. As Katz explains, plastic has a poor public image because it was originally intended as a cheaper substitute for other materials. She sees herself as a champion of plastic and endows it with democratic potential: ‘a universal material available to everyone'. Furthermore, she says ‘the chemist, processor and designer can fashion an infinite combination of chemicals'and the mouldability of plastics means that it can take virtually any form. One advantage of the materials approach is that it enables the writer to transcend conventional divisions, thereby broadening the scope of the text. Katz, for instance, includes examples of medical aids, transportation, engineering, architecture (air structures) and works of art, besides furniture and consumer goods.
+
+On the question of the design/material relationship, the book illustrates examples of plastic radio cabinets in a neo-baroque style. This suggests that the very versatility of plastic means that any style can be imprinted upon it, that there is no necessary connection between material and form. Katz argues, however, that ‘streamlining in plastics is an inherent characteristic of the material. Plastic objects are curved because polymers need to flow within the moulds and corners are difficult to produce.'3 She also says that step-form objects in plastic were popular not only because the art deco style was fashionable at the time but also because the step-form facilitated the removal of the object from the mould. It seems clear from these examples that the physical properties of materials and the nature of the processes involved in manufacture favour certain forms and styles and not others, even if there is nothing absolute about the determination.
+
+Descriptions of materials and processes can easily result in a highly technical, quasi-scientific textbook. It is difficult, therefore, to combine the materials approach with a sociohistorical study arranged chronologically. This is, however, what Katz attempts in her more recent publication, Classic Plastics: from Bakelite to High-Tech (1984).
+
+The materials/techniques approach serves less well for complex artefacts assembled from parts made from many different

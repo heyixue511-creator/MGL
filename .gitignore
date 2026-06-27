@@ -1,0 +1,15 @@
+# Exclude ALL content in 01-Papers and 02-book recursively
+01-Papers/**
+02-book/**
+
+# Un-ignore directories first (so git can traverse into them)
+!01-Papers/**/
+!02-book/**/
+
+# Un-ignore .gitkeep files to preserve folder structure
+!01-Papers/**/.gitkeep
+!02-book/**/.gitkeep
+
+# Python cache
+__pycache__/
+*.pyc
